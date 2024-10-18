@@ -3,3 +3,5 @@
 ÉN VAGYOK A MACSKA MEOW
 
 MEOW
+
+I use arch btw 🤓
