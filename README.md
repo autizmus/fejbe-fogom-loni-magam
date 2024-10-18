@@ -1,4 +1,4 @@
-# Sziamiau meow uwu nagyon szeretem a macskákat ;3 ÉN VAGYOK POLOKALAP
+# Sziamiau meow uwu nagyon szeretem a macskákat ;3
 
 ÉN VAGYOK A MACSKA MEOW
 
